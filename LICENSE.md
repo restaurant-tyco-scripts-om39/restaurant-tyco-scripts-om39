@@ -1,4 +1,4 @@
-
+rivals ult Scripts: auto-win & god is the ultimate solution for rivals players! Our scripts provide auto-win and god, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your rivals experience today!
 
 
 ---
